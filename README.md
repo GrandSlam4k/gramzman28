@@ -1,5 +1,8 @@
 
-"GrandSlam Recording Studio - ReLEE GRAMZ https://open.spotify.com/artist/6lGGPiMMFVXyEYg9H26V2s
+"GrandSlam Recording Studio"
+
+
+LEE GRAMZ https://open.spotify.com/artist/6lGGPiMMFVXyEYg9H26V2s
 
 LeeGramz https://www.facebook.com/LeeGramz1989
 
@@ -38,8 +41,9 @@ LEE GRAMZ https://www.google.com/search?q=Lee+Gramz&newwindow=1&sxsrf=AOaemvL308
 
 Gramzman28
 
-https://www.google.com/search?q=Gramzman28&newwindow=1&sxsrf=AOaemvJZRE0GCS3VFcUyB5frLVvZnwmdYA%3A1635680629991&ei=dYF-YcnqO9PstQbLj4OgDA&oq=Gramzman28&gs_lcp=Cgdnd3Mtd2l6EAM6BwgjELADECc6CwgAELADEAcQChAeOgkIABCwAxAIEB46BAgjECc6CgguEIAEEIcCEBQ6BQgAEIAEOgcILhCxAxAKOgoIABCABBCHAhAUOgUIABCRAjoICC4QgAQQsQM6BQguEIAEOg0ILhCABBCHAhCxAxAUOgcILhCxAxBDOgQIABBDOgsILhCABBDHARCvAToECC4QQzoFCC4QkQI6DgguEIAEELEDEMcBEKMCOhAILhDHARCvARDqAhAnEJMCOgcIIxDqAhAnOg0ILhDHARDRAxDqAhAnOg0ILhDHARCvARAnEJMCOgoILhDHARCvARBDOgsILhDHARCvARCRAjoICAAQgAQQsQM6DgguEIAEELEDEMcBENEDOg0ILhDHARCvARBDEJMCOgcIABCxAxBDOgcIABCxAxAKSgQIQRgBUJC9BFia_QRg5YIFaAJwAHgAgAGEAYgBgw-SAQQ2LjEymAEAoAEBsAEKyAEGwAEB&sclient=gws-wiz&ved=0ahUKEwiJ-amXyfTzAhVTds0KHcvHAMQQ4dUDCA0&uact=5cording Studio" https://grandslamrecordingstudio.com GrandSlam4k 38MG+33 Youngstown, OH, USA
+https://www.google.com/search?q=Gramzman28&newwindow=1&sxsrf=AOaemvJZRE0GCS3VFcUyB5frLVvZnwmdYA%3A1635680629991&ei=dYF-YcnqO9PstQbLj4OgDA&oq=Gramzman28&gs_lcp=Cgdnd3Mtd2l6EAM6BwgjELADECc6CwgAELADEAcQChAeOgkIABCwAxAIEB46BAgjECc6CgguEIAEEIcCEBQ6BQgAEIAEOgcILhCxAxAKOgoIABCABBCHAhAUOgUIABCRAjoICC4QgAQQsQM6BQguEIAEOg0ILhCABBCHAhCxAxAUOgcILhCxAxBDOgQIABBDOgsILhCABBDHARCvAToECC4QQzoFCC4QkQI6DgguEIAEELEDEMcBEKMCOhAILhDHARCvARDqAhAnEJMCOgcIIxDqAhAnOg0ILhDHARDRAxDqAhAnOg0ILhDHARCvARAnEJMCOgoILhDHARCvARBDOgsILhDHARCvARCRAjoICAAQgAQQsQM6DgguEIAEELEDEMcBENEDOg0ILhDHARCvARBDEJMCOgcIABCxAxBDOgcIABCxAxAKSgQIQRgBUJC9BFia_QRg5YIFaAJwAHgAgAGEAYgBgw-SAQQ2LjEymAEAoAEBsAEKyAEGwAEB&sclient=gws-wiz&ved=0ahUKEwiJ-amXyfTzAhVTds0KHcvHAMQQ4dUDCA0&uact=5cording Studio" https://grandslamrecordingstudio.com 38MG+33 Youngstown, OH, USA
 
-GrandSlam Recording Studio @gramzman28 
-https://github.com/GrandSlam4k/gramzman28
+Lee Gramz 
+@gramzman28 
+
 
