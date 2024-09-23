@@ -1,45 +1,111 @@
+BUSINESS NAME: GrandSlam Recording Studio 
 
-"GrandSlam Recording Studio - ReLEE GRAMZ https://open.spotify.com/artist/6lGGPiMMFVXyEYg9H26V2s
+TABLE OF CONTENT
 
-LeeGramz https://www.facebook.com/LeeGramz1989
+Executive Summary
 
-https://grandslamrecordingstudio.business.site/posts/8137266116070737313Music Platform Blogger in Creativity thinkinghttps://www.facebook.com/WeConnectedMediaLLC
+Products and Services
 
-https://www.google.com/search?q=GrandSlamRecordingStudio4k
+Vision Statement
 
-https://www.google.com/search?q=grandslam+recording+studio&newwindow=1&sxsrf=AOaemvKthp0Yy_h0up3y4FGmaI6rqLEzJg%3A1635680383522&ei=f4B-YbmZH9C3tAbLvaiIDg&gs_ssp=eJwFwUsOQDAQANDYSlzAysbaTP_TI7hF6ScVKinC8b3XdlOaEDd4xY3-hcaO8BnDeZAsrsyRQowWPkWoIZKEJRBpIeY-VVf8tbtjqGE9q88lDdf9-Hz-s-wY6A&oq=G&gs_lcp=Cgdnd3Mtd2l6EAEYAjIECCMQJzIECCMQJzIKCC4QxwEQrwEQJzILCC4QxwEQrwEQkQIyBQgAEJECMgQIABBDMgQIABBDMggIABCABBCxAzIICAAQgAQQsQMyDgguEIAEELEDEMcBENEDOgcIIxCwAxAnOgcIABBHELADOgcIIxDqAhAnOg0ILhDHARDRAxDqAhAnSgQIQRgAUJyGB1ichgdgoaIHaANwAngAgAFxiAFxkgEDMC4xmAEAoAEBsAEKyAEEwAEB&sclient=gws-wiz
+Mission Statement
 
-Google Businesshttps://grandslamrecordingstudio.business.site/posts/8137266116070737313
+Business Structure
 
-GitHub https://github.com/Gramzman28 
+Target Market
 
- @gramzman28 https://twitter.com/gramzman28?lang=enhttps://twitter.com/grandslam4k
+Marketing and Sales Strategy
 
-38MG+33 Youngstown, Ohio
+Source of Income
 
-@GrandSlamRecordingStudio4k https://www.facebook.com/GrandSlamRecordingStudio4k/
+Executive Summary
 
-GramzmanTv Youtubehttps://www.youtube.com/channel/UCnsyt1x9MxqYHmSJBDqpOEA
+GrandSlam Recording Studio is a registered incorporation in Youngstown Ohio, United States that specializes in sound and music recording and production. From the research we carried out, we discovered that there is a high demand for our services in Youngstown Ohio and the available recording studios available are not enough to meet that demand. This is why we have decided to start a world class recording studio.
 
-@gramzman28 https://www.facebook.com/DaGramzman28https://www.instagram.com/gramzman28/
+Our aim is to stand out among all the recording studios in Youngstown Ohio. We intend to achieve this establish a world class recording studio in a serene environment and equip it with standard equipment and gadgets that will help us in producing good and quality sounds for our clients.
 
-@grandslam4k https://www.instagram.com/grandslam4k/
+We will also make entrench a culture of excellent customer service. We will serve our clients in every excellent way.
 
-GrandSlam Recording Studio
+We will offer our clients quality services and ensure it is delivered right on time. Our clients will be treated with outmost respect and love. Doing this will make our clients to be endeared and loyal to us. And this will make them to keep coming back and also recommending our business to others.
 
-GrandSlam Recording Studio﻿ Music Production Studio GrandSlam Recording StudioLLC Is a specialized facility for sounds recording audio productions of vocal musical performance & Other Sounds recording promotion, filming production & music distribution
+GrandSlam Recording Studio will be owned by Mr. Leon Scott , a certified Sound Engineer. Mr. Scott is highly experienced in the industry. He has worked and consulted for reputable recording studios in the United States over the last 3 years. Through his expertise and wealth of experience, he intends to build a formidable recording studio business all through the United States.
 
-@GrandSlamRecordingStudio4k https://grandslamrecordingstudio.com/https://www.google.com/search?q=GrandSlam+Recording+Studio%28GrandSlam4k%29%2C+Glenwood+Avenue%2C+Youngstown%2C+OH&newwindow=1&client=safari&channel=mac_bm&biw=1121&bih=1563&ei=InN-YYiHLMqmqtsPga6KsAE&oq=grandslam+recording+studio%28&gs_lcp=Cgdnd3Mtd2l6EAEYATIGCAAQFhAeMgIIJjoHCAAQRxCwA0oECEEYAFDC-zpYwvs6YNGMO2gBcAB4AIABW4gBW5IBATGYAQCgAQHIAQTAAQE&sclient=gws-wiz grandslamrecordingstudio.com
+Products and Services
 
-@GramzmanPromotion
-https://www.facebook.com/GramzmanPromotion
+GrandSlam Recording Studio plans to offer wide range of products and services that our clients will be willingly and able to pay for. Some of the products and services include:
 
-LEE GRAMZ https://www.google.com/search?q=Lee+Gramz&newwindow=1&sxsrf=AOaemvL308G0FufwEAzZ4gbovTrqO54Yxg%3A1635680503997&ei=94B-YfqdPI7JtQbtoIQo&oq=Lee+Gramz&gs_lcp=Cgdnd3Mtd2l6EAMyBAgjECcyBAgjECcyBAgjECcyBggAEBYQHjIGCAAQFhAeMggIABAWEAoQHjoHCCMQsAMQJzoNCC4QxwEQrwEQsAMQJzoHCAAQRxCwAzoQCC4QxwEQrwEQsAMQJxCTAjoNCC4QxwEQrwEQJxCTAjoCCCY6EAguEMcBEK8BEOoCECcQkwI6BwgjEOoCECc6DQguEMcBENEDEOoCECc6BQgAEJECOggILhCABBCxAzoOCC4QgAQQsQMQxwEQowI6CwguEIAEELEDEIMBOg4ILhCABBCxAxDHARDRAzoLCC4QxwEQrwEQkQI6BAgAEEM6BwguELEDEEM6BAguEEM6BQguEIAEOgUIABCABDoHCC4QsQMQCkoECEEYAFDr8QZY4MgHYNvQB2gCcAJ4AYAB1wGIAZEhkgEHMTkuMjAuMZgBAKABAbABCsgBB8ABAQ&sclient=gws-wiz&ved=0ahUKEwi69Z_byPTzAhWOZM0KHW0QAQUQ4dUDCA0&uact=5
+Music Recording
 
-Gramzman28
+Sound Recording
 
-https://www.google.com/search?q=Gramzman28&newwindow=1&sxsrf=AOaemvJZRE0GCS3VFcUyB5frLVvZnwmdYA%3A1635680629991&ei=dYF-YcnqO9PstQbLj4OgDA&oq=Gramzman28&gs_lcp=Cgdnd3Mtd2l6EAM6BwgjELADECc6CwgAELADEAcQChAeOgkIABCwAxAIEB46BAgjECc6CgguEIAEEIcCEBQ6BQgAEIAEOgcILhCxAxAKOgoIABCABBCHAhAUOgUIABCRAjoICC4QgAQQsQM6BQguEIAEOg0ILhCABBCHAhCxAxAUOgcILhCxAxBDOgQIABBDOgsILhCABBDHARCvAToECC4QQzoFCC4QkQI6DgguEIAEELEDEMcBEKMCOhAILhDHARCvARDqAhAnEJMCOgcIIxDqAhAnOg0ILhDHARDRAxDqAhAnOg0ILhDHARCvARAnEJMCOgoILhDHARCvARBDOgsILhDHARCvARCRAjoICAAQgAQQsQM6DgguEIAEELEDEMcBENEDOg0ILhDHARCvARBDEJMCOgcIABCxAxBDOgcIABCxAxAKSgQIQRgBUJC9BFia_QRg5YIFaAJwAHgAgAGEAYgBgw-SAQQ2LjEymAEAoAEBsAEKyAEGwAEB&sclient=gws-wiz&ved=0ahUKEwiJ-amXyfTzAhVTds0KHcvHAMQQ4dUDCA0&uact=5cording Studio" https://grandslamrecordingstudio.com GrandSlam4k 38MG+33 Youngstown, OH, USA
+Sound Production
 
-GrandSlam Recording Studio @gramzman28 
-https://github.com/GrandSlam4k/gramzman28
+Training and Consulting
+
+Setting Up Recording Studio for Clients
+
+Production of Advertisement Jingles
+
+Production of Movies Soundtracks
+
+Production of Audio Books and Instructional Materials
+
+Sales of Studio Equipment
+
+Vision Statement
+
+The vision of GrandSlam Recording Studio is to be among the top ten leading recording studio in United States within the next 10 years.
+
+Mission Statement
+
+Knowing that customer is the backbone of every successful business, we are on a mission to build a client oriented Recording Studio Business by ensuring that every client that do business with us is 100% satisfied.
+
+Business Structure
+
+We aim to set up a very solid business structure because we know it is essential to the growth and success of the business. Our business structure will comprise of:
+
+Chief Executive Officer
+
+Studio Manger
+
+Sound Engineers
+
+Accountant
+
+Human resources and Admin Manager
+
+Sales and Marketing Executives
+
+Customer Service Executive
+
+Receptionist
+
+Security Guards
+
+Cleaners
+
+Target Market
+
+We understand that focus is pivot for success. This is why we have decided to focus on target a specific group of people in the market. Our target market will include:
+
+Music Artists
+
+Voiceover Artists
+
+Movie Producers
+
+Record Labels
+
+Churches
+
+Advertising Agencies
+
+Corporate Organizations
+
+Radio and Television Stations
+
+Marketing and Sales Strategy
+
+In order to have effective sales and marketing strategy in place for our recording studio business, we intend to hire highly competent and experienced marketing strategies to help us develop result oriented marking campaign that will enable us to gain ground in the market.
+
 
